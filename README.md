@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+I like a lot of things, so do not hesitate to contact me ! :hibiscus:
+We can work together ! :cherry_blossom:
+
 <!--
 **FlorieSalvaya/FlorieSalvaya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
